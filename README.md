@@ -1,0 +1,4 @@
+- 👋 Hola, Me llamo Joanmi y tengo 21 años.
+- 🏡 Vivo en un pueblo de Valencia llamado Tavernes de la Valldigna.
+- 📖 Actualmente estudiante de DAM.
+- 🎮 Me gustan los videojuegos.
